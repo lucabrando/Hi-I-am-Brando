@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @lucabrandosanfilippo
+- 👀 I’m interested in longevity, deeptech, psychology
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on whatever entry-level activity
+- 📫 How to reach me: sanfilippo.lucabrando@gmail.com
+- 😄 Pronouns: he/him
